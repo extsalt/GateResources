@@ -115,3 +115,7 @@ https://mega.nz/folder/yQVVgBTC#rirz1adG_hvKtM-5ovZYDw
 ## Simple Tricks
 
 * [Linear Algebra](https://youtu.be/eVZX1VDC_As)
+* 
+
+
+https://mega.nz/folder/yQVVgBTC#rirz1adG_hvKtM-5ovZYDw
